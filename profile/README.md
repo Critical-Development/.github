@@ -23,3 +23,7 @@ Thank you for visiting our page!
 ```Portfolio loading...```
 
 ```🔵🔵🔵🔵🔵🔵⚪️⚪️⚪️⚪️```
+
+
+
+# Contact us contact@criticaldevelopment.eu
